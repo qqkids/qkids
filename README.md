@@ -1,2 +1,1 @@
-# qkids
-qkids official 
+# Welcome kids!!! 
